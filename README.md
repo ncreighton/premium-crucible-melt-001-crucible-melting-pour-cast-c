@@ -1,0 +1,2 @@
+# premium-crucible-melt-001-crucible-melting-pour-cast-c
+Tired of losing track of which crucible mix produced that perfect bronze pour? Stop guessing and start documenting every melt with a system built for the heat.  The Crucible Melting &amp; Pour Cast Craft Studio Notion template eliminates the chaos of managing multiple melt projects. It centralizes your alloy recipes, pour schedules, mold inventories, a
